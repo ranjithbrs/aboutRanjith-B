@@ -74,4 +74,3 @@ I'm a motivated and curious CSBS undergraduate with hands-on experience across *
 
 ---
 
-> “Vera level learning, one domain at a time.”  
